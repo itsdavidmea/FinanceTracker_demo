@@ -1,0 +1,1 @@
+I will train my self into a building a demo finance tracker 
